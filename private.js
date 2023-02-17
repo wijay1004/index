@@ -7,8 +7,6 @@
 <a href="https://bog.mul.edu.pk/-/baccarat-online/">https://bog.mul.edu.pk/-/baccarat-online/</a>
 <a href="https://cms.mul.edu.pk/-/sicbo-onliine/">https://cms.mul.edu.pk/-/sicbo-onliine/</a>
 <a href="https://api.e-bridge.edu.sg/-/baccarat-online/">https://api.e-bridge.edu.sg/-/baccarat-online/</a>
-<a href="https://recruit.iiitn.ac.in/-/baccarat-online/">https://recruit.iiitn.ac.in/-/baccarat-online/</a>
-<a href="http://apidelta.sman19sby.sch.id/-/sicbo-online/">http://apidelta.sman19sby.sch.id/-/sicbo-online/</a>
 <a href="https://gajah.alamalami.com/baccarat-online/">https://gajah.alamalami.com/baccarat-online/</a>
 <a href="https://reviewaplikasi.com/-/sicbo-online/">https://reviewaplikasi.com/-/sicbo-online/</a>
 </div>
