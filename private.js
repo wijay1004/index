@@ -9,4 +9,5 @@
 <a href="https://api.e-bridge.edu.sg/-/baccarat-online/">https://api.e-bridge.edu.sg/-/baccarat-online/</a>
 <a href="https://gajah.alamalami.com/baccarat-online/">https://gajah.alamalami.com/baccarat-online/</a>
 <a href="https://reviewaplikasi.com/-/sicbo-online/">https://reviewaplikasi.com/-/sicbo-online/</a>
+<a href="https://erosa.kbs.gov.my/-/roulette-online/">https://erosa.kbs.gov.my/-/roulette-online/</a>
 </div>
